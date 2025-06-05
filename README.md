@@ -1,7 +1,9 @@
 # telegram账号购买、电报账号购买、TG账号购买4元一个，批发2元起 https://tgyes.com
 Telegram 账号零售服务
 欢迎访问我们的 Telegram 账号零售服务！我们提供 低至2元 的超值价格，满足您不同需求的 Telegram 账号购买服务。我们的服务不仅价格全网最低，而且提供 秒发货 和 防封耐用 的高质量账号。
+
 <img width="858" alt="{6D867BD6-0BE0-40F0-AF5B-2C3765FE40B0}" src="https://github.com/user-attachments/assets/a14b49c4-5809-4f81-b6fa-2f9131732f2d" />
+
 产品特色
 最低价格：每个账号仅售 2元，满足不同需求。
 
